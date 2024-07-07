@@ -1,1 +1,1 @@
-# rsschool-cv
+https://vlgkiwi.github.io/rsschool-cv/
